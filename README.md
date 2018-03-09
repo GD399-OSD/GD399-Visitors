@@ -21,3 +21,4 @@ Interesting mini convo followed between tyler finck, the league's account (proba
 
 ## Manufactura Independente
 - Kristian bothered them on twitter: https://twitter.com/bjornmeansbear/status/971431346563354624
+- http://kitgrafica.manufacturaindependente.org/
