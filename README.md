@@ -18,3 +18,6 @@ Also, links out to other interviews, etc. we may have conducted via twitter, etc
 ## League Of Moveable Type
 - Kristian bothered them on twitter: https://twitter.com/bjornmeansbear/status/971422322757439488 & https://twitter.com/finck/status/971754726600605696
 Interesting mini convo followed between tyler finck, the league's account (probably Micah Rich?) and bjornmeansbear
+
+## Manufactura Independente
+- Kristian bothered them on twitter: https://twitter.com/bjornmeansbear/status/971431346563354624
